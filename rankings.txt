@@ -1,2 +1,2 @@
-# Ranking of cities
-1. Colombo
+
+Resolved code
