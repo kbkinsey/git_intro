@@ -1,6 +1,6 @@
 # Rat Ranking
 
-Please add your own
+**Please add your own**
 
 1. Pizza Rat (and all other NYC subway rats)
 2. Remy 
