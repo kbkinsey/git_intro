@@ -2,9 +2,10 @@
 
 **Please add your own**
 
-1. Pizza Rat (and all other NYC subway rats)
+1. Master Splinter # Hangs out with turtles; obviously top rat.
 2. Remy 
-3. Master Splinter
+5. Pizza Rat (and all other NYC subway rats) # Voted down because grouped with other NYC rats
+
 
 ## Honorable mention:
 Berkeley Campus Rat (credit to my student Catherine Ando)
