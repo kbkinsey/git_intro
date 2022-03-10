@@ -2,6 +2,7 @@
 
 **Please add your own**
 
+1a. Gonzo
 1. Master Splinter # Hangs out with turtles; obviously top rat.
 2. Pizza Rat (and all other NYC subway rats)
 3. Remy 
