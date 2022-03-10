@@ -2,8 +2,8 @@
 
 **Please add your own**
 
-1. Pizza Rat (and all other NYC subway rats)
-2. Remy 
+1. Remy 
+2. Pizza Rat (and all other NYC subway rats)
 3. Master Splinter
 
 ## Honorable mention:
