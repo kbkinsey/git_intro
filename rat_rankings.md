@@ -6,6 +6,7 @@
 1. Remy 
 2. Pizza Rat (and all other NYC subway rats)
 3. Master Splinter
+4. Rizzo the Rat
 
 ## Honorable mention:
 Berkeley Campus Rat (credit to my student Catherine Ando)
