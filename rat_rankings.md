@@ -8,6 +8,7 @@
 
 ## Honorable mention:
 The rat in Ian's furnace
+
 Berkeley Campus Rat (credit to my student Catherine Ando)
 
 ![Berkeley campus rat](campus_rat.png)
